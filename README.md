@@ -1,2 +1,2 @@
 **imo apk**   
-from [apkcombo.com](apkcombo.com) website
+download apks from [apkcombo.com](apkcombo.com) website
